@@ -1,6 +1,6 @@
 ## ✨Welcome To Watch My Profile✨ 
 
-Here is Kilo ，也可以叫我空默，。
+Here is Kilo ，也可以叫我空默。
 
 ### 个人[B站](https://space.bilibili.com/13108405?spm_id_from=333.1007.0.0)
 偶尔会发布一些日常好玩有意思的视频上传，感兴趣的可以点点关注🌹
