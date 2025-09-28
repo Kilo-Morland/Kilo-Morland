@@ -18,9 +18,17 @@ Here is Kilo ，也可以叫我空默。
 ### 兴趣爱好
 📚：古典文学、古诗词、散文、哲学、心理学（小众文学爱好者）
 
+Power of Knowledge 
+
 🎮：RTS、FPS、MOBA、RPG、PVP、PVE、MC、解密、合作多人（成就系游戏玩家）
+
+Top Player？
 
 🍪：曲奇饼、苏打饼、绿豆饼、老婆饼、华夫饼（大部分饼干爱好者）
 
+cookie！cookie！
+
 ### 结束语
 相识不熟亦或素未谋面，缘分依然会安排你我相遇。
+
+Whether we're acquainted or strangers, fate will still bring us together.
